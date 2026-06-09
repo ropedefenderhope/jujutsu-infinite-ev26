@@ -1,4 +1,4 @@
-
+Experience jujutsu infinite like never before with jujutsu infinite custom Script, the #1 Script. Includes aimbot and invisibility for unbeatable
 
 
 
